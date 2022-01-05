@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Majodan
+- 👀 I'm geek-curious.
